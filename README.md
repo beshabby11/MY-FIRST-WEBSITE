@@ -1,2 +1,2 @@
 # MY-FIRST-WEBSITE
-my first shi on github :)
+my first cooking on github :)
